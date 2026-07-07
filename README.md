@@ -1,1 +1,0 @@
-# curly-rotary-zcw
